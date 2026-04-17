@@ -11,8 +11,6 @@ Connecting your Canon printer to WiFi is quick and easy with the right steps. Us
      </a>
    </div>
 
-**[Dial +1-801-878-6858 USA]**
-
 In this complete guide, you will learn the easiest methods to connect your Canon printer to WiFi, along with troubleshooting tips and frequently asked questions.
 
 Why Connect Canon Printer to WiFi?
